@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant new coin sniper bot | liquidity-sniping + slippage-control, the #1 new coin sniper bot. Includes liquidity-sniping and slippage-control for a
 
 
 
